@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **JavaScript and react js**
 
-- 📄 Know about my experiences [file:///D:/My%20CV/Grey%20Minimalist%20Content%20Writer%20Resume.pdf](file:///D:/My%20CV/Grey%20Minimalist%20Content%20Writer%20Resume.pdf)
+- 📄 Know about my experiences [https://mail.google.com/mail/u/0/#all?projector=1](https://mail.google.com/mail/u/0/#all?projector=1)
 
 - ⚡ Fun fact **I Am Funny**
 
